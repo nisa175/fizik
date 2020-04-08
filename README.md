@@ -14,3 +14,6 @@ Enjoy your meal.
 
 Nisa Nur DOĞAN 9D
 
+
+Vucut Kitle indeksi :
+Ben : 20.62 Babam : 28.54 Annem : 22.17 Kardeşim : 18.48
