@@ -13,3 +13,4 @@ Let rice simmer for about 20-25 minutes and remove from heat.
 Enjoy your meal.
 
 Nisa Nur DOĞAN 9D
+
